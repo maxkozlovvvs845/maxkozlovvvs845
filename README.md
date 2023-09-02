@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @maxkozlovvvs845
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...y 34a43tre
-- 💞️ I’m looking to collaborate on ...j5e6 345u ertutr ut
+- 💞️ I’m looking to collaborate on ...j5e6 345u ertutr ut g re gregh y3434y34yy34  fd
 - 📫 How to reach me ...g45htrtr6855855
 559400kytety hs54 5s thshstydkty 6534 gwrthdzfhfk yufrthu tye jert hwre
 <!---ifyu
